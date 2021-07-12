@@ -1,4 +1,4 @@
-### Hi there, I am Olasunkanmi Olayinka, A Software Engineer with a difference . U want to know more? 
+### Hi there, I am Olasunkanmi Olayinka. O, A Software Engineer with a difference . U want to know more? 
 # Coming Soon ....👋
 
 <!--
